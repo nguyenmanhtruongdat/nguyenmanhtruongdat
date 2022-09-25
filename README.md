@@ -15,8 +15,5 @@
 ### 😂Funny
 <img src="https://scontent.fdad1-3.fna.fbcdn.net/v/t1.15752-9/308997866_1499322567164924_6139325095248630910_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=ae9488&_nc_ohc=he1YUqyjw6cAX-1Fh1S&_nc_ht=scontent.fdad1-3.fna&oh=03_AVKs4lkdvq3D1Dm_BOmPfy5jb3OGwfiT-M-i3nnkZ8AMNA&oe=6356064F" width="512px"/>
 
-![image](https://user-images.githubusercontent.com/94544483/192148238-cf903c4b-b057-40c9-9dac-e6eb550a0fb5.png)
-
-
 ---
 [![](https://visitcount.itsvg.in/api?id=nguyenmanhtruongdat&icon=0&color=0)](https://visitcount.itsvg.in)
