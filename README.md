@@ -11,7 +11,9 @@
 ![](https://github-trophies.vercel.app/?username=nguyenmanhtruongdat&theme=dracula&no-frame=false&no-bg=false&margin-w=4)
 
 ### Love ❤
-<img src="https://pl.pinterest.com/pin/668925350928406934/" width="512px"/>
+
+![Screenshot 2023-10-26 232201](https://github.com/nguyenmanhtruongdat/nguyenmanhtruongdat/assets/94544483/8cb782f3-d2a5-4eb0-9689-77f866b48ffe)
+![22_62fa079cce827](https://github.com/nguyenmanhtruongdat/nguyenmanhtruongdat/assets/94544483/13587e0a-c9e7-49b9-a491-aed185d2990c)
 
 ---
 [![](https://visitcount.itsvg.in/api?id=nguyenmanhtruongdat&icon=0&color=0)](https://visitcount.itsvg.in)
