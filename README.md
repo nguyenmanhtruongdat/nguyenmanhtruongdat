@@ -10,9 +10,10 @@
 ## 🏆GitHub Trophies
 ![](https://github-trophies.vercel.app/?username=nguyenmanhtruongdat&theme=dracula&no-frame=false&no-bg=false&margin-w=4)
 
-### Love ❤
+### ❤
 
-![phuong-nhi-1](https://github.com/nguyenmanhtruongdat/nguyenmanhtruongdat/assets/94544483/322dc20d-b73a-46cf-9f81-98963b3cd6cf)
+![_ ˚ ✦](https://github.com/nguyenmanhtruongdat/nguyenmanhtruongdat/assets/94544483/f549a5f4-8c28-4d6b-ae63-6c342301f5a5)
+
 
 ---
 [![](https://visitcount.itsvg.in/api?id=nguyenmanhtruongdat&icon=0&color=0)](https://visitcount.itsvg.in)
